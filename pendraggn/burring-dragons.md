@@ -645,5 +645,3 @@ Has the Eye? or so Liz III says.
 ## Place: Unknown - Year: Unknown: Is this the end, my friend?
 
 ## Fin?
-
-*Source: https://sites.google.com/view/knottsure/home/pendraggn/burring-dragons*

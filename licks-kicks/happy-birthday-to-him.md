@@ -83,5 +83,3 @@ High ho, high ho
 South we must go....
 
 Dragg'nPen Love
-
-*Source: https://sites.google.com/view/knottsure/home/licks-kicks/happy-birthday-to-him*

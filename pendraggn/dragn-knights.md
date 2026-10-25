@@ -93,5 +93,3 @@ Age : 7 7
 Vacations: 3
 
 Gift(s): 2+
-
-*Source: https://sites.google.com/view/knottsure/home/pendraggn/dragn-knights*

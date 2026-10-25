@@ -41,5 +41,3 @@ Disassembl-ed, dine, dinner... dat-ed!
 Disjointed, dame, denied... douch!
 
 Diss'd, doubiously, de-fry-ant!, E :, F :, G:, H:, I :, J :, K :, L : Love,, M :, N : Now, O : Or, P : Love,, Q :, R :, S :, T : Love,, U :, V :, W :, X : Love,, Y :, Z :
-
-*Source: https://sites.google.com/view/knottsure/home/licks-kicks/the-alpha-bit*

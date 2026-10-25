@@ -1,6 +1,6 @@
 # Why Not? — knottsure site export
 
-Full text export of Matthew's Google Site "Why Not?" (https://sites.google.com/view/knottsure/home), pulled 2026-10-13 and rebuilt here because Google Sites offers no export. All 43 pages, hierarchy preserved. Text is verbatim — his spelling and punctuation are his.
+Full text export of Matthew's Google Site "Why Not?", pulled 2026-10-13 and rebuilt here because Google Sites offers no export. All 43 pages, hierarchy preserved. Text is verbatim — his spelling and punctuation are his.
 
 ## Pages
 

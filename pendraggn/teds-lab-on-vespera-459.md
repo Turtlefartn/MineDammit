@@ -21,5 +21,3 @@ As soon as he says this, Tammy J snaps his arm in two and uses it to stab him in
 Tammy J has made it to Ted's ship and started her journey to cover up and fix Ted's mistakes.
 
 "Idiot... "Carry the '2'" 'Four-get-Four' Duty... The mission.
-
-*Source: https://sites.google.com/view/knottsure/home/pendraggn/teds-lab-on-vespera-459*

@@ -131,5 +131,3 @@ They've 'seen' all the crazy shit we've been doing...
 2.0?
 
 Main character from 4, Pulled Up and Out, becomes a
-
-*Source: https://sites.google.com/view/knottsure/home/pendraggn/crossing-the-line*

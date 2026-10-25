@@ -29,5 +29,3 @@ https://muse.ai/s/stellar-engineering-crash-course-bxy5xskxsx0ibxz3 (dead link â
 ## Project 1024
 
 ---
-
-*Source: https://sites.google.com/view/knottsure/home/pendraggn*

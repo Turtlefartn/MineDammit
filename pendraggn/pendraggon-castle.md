@@ -119,5 +119,3 @@ Overhead, down... *Gentle Pat*
 "'I' had to throw... 6,999,999,999 extra fucking axes.... At least it's not your number!"
 
 How many years will Timmy here take? Now for the next test....
-
-*Source: https://sites.google.com/view/knottsure/home/pendraggn/pendraggon-castle*

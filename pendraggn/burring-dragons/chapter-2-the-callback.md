@@ -65,5 +65,3 @@ Beginner's numbers. I was so proud of them I could have burst.
 God forgive me, so was she.
 
 ~Muse
-
-*Source: https://sites.google.com/view/knottsure/home/pendraggn/burring-dragons/chapter-2-the-callback*

@@ -15,5 +15,3 @@ My Dearest Veronica,
 Bubbles are ready!
 
 -EvoL T
-
-*Source: https://sites.google.com/view/knottsure/home/licks-kicks/victorias-exposed-secrets*

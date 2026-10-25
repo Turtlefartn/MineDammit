@@ -215,5 +215,3 @@ Cornbread Colonel,
 Sausage & Turkish
 
 Porn & Chicken!
-
-*Source: https://sites.google.com/view/knottsure/home/licks-kicks/p04n-ckn*

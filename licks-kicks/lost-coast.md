@@ -83,5 +83,3 @@ Daily count, another slight.
 Sir, we're not open... Again,
 
 Marco, Steve, Fred, and Nikki
-
-*Source: https://sites.google.com/view/knottsure/home/licks-kicks/lost-coast*

@@ -51,5 +51,3 @@ As they were the 'first' intelligent life to exist on this planet... They call u
 Advanced Ship sent ahead of Sol 2.0 to recon Alpha C. 70,000 years after Sol 2.0 was ignited and humanity was welcomed onto the galactic stage. It was a puzzle : would an intelligent enough species figure it out and learn how to ignite a star?
 
 In-put,-in.
-
-*Source: https://sites.google.com/view/knottsure/home/pendraggn/to-risk-it-all*

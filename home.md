@@ -51,5 +51,3 @@ Lastly, if there are aliens, we need to look at what we're broadcasting. Watch G
 I like to think….We don't need this tomorrow. But yesterday would be nice. Tomorrow would be great to see what we can do about getting there! Or maybe 100 years from now; 100 years ago, the car was new… Lastly, 1 day with 0 electricity worldwide (minus emergency services), just to listen... to what it used to be like.
 
 ---
-
-*Source: https://sites.google.com/view/knottsure/home*

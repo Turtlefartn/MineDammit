@@ -13,5 +13,3 @@ As soon as he says this, Tammy R snaps his leg in two and uses it to club him ov
 Tammy R has made it to Ted's ship and started her journey to cover up and fix Ted's and Thomas's mistakes.
 
 "Idiot... "Carry the '2'" 'Four-get-Four' Duty... The mission. Timmy Prime, he figured it out! Still in his pod or working his way backwards yet? Is it time? Did we get all the Tom'ass'es?
-
-*Source: https://sites.google.com/view/knottsure/home/pendraggn/teds-lab-on-vespera-5778*

@@ -13,5 +13,3 @@ Chuck doesn't give a fuck, waiting for God to settle his own business. The floor
  Hidden in a wall in the past.
 
 Fracture
-
-*Source: https://sites.google.com/view/knottsure/home/pendraggn/back-forth-and-back-again*

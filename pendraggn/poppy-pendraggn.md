@@ -51,5 +51,3 @@ Never mind, I can now tell you clearly myself.
 ## Apha's
 
 'Alphas,' as we call them (or just Assholes, as they don't have one... Apparently, they're so 'energy efficient' (with 'perfect' conditions) they only exhale gases and secrete liquids. They wear these latex-like vacuum 'Sex Suits,' as we call them. To collect their pungent secretions (aka pheromones). Initially, they wore these suits to no longer had to wipe themselves down with a towel every 10 minutes to conform to social standards.
-
-*Source: https://sites.google.com/view/knottsure/home/pendraggn/poppy-pendraggn*

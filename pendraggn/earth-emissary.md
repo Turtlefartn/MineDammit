@@ -79,5 +79,3 @@ Don't know shit(aka probability)
 +But ppl?
 
 ("Explain how the exact possible position of the planet is 'tethered' to a point in time on a Trip through non-linear time in a specific timeline of possible timelines." discovery that the end is the beginning, up is down.)
-
-*Source: https://sites.google.com/view/knottsure/home/pendraggn/earth-emissary*

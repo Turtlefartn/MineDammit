@@ -93,5 +93,3 @@ Lincoln was killed by Mary, also using the temporal window. She's the one who fi
 Lincoln broke the line.... The Secret deal with the OG13 was that the men would be the show and the women would be the guiding hand. Since Lincoln, this hasn't been the case... Carter "fixed" it.
 
 We’re tasked with joining up with a subterranean species in Alpha, join up, and head “Home” for our next task. Catching up with the Great Attractor… Escaping the daggers that come with Benard… (What is on Benard? Better yet, what comes with…..?)
-
-*Source: https://sites.google.com/view/knottsure/home/pendraggn/queens-of-time*

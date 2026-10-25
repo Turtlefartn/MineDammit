@@ -31,5 +31,3 @@ of alcohol? Striving to
 eliminate the wine cellar!
 
 One bottle at a time!
-
-*Source: https://sites.google.com/view/knottsure/home/licks-kicks/when-the-irish*

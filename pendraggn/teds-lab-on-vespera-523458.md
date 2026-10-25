@@ -15,5 +15,3 @@ Tammy R has made it to Ted's ship and started her journey to cover up and fix Te
 "Idiot... "Carry the '2'" 'Four-get-Four' Duty... The mission. Timmy Prime, he figured it out! Still in his pod or working his way backwards yet? Is it time? Did we get all the Tom'ass'es?
 
 Tammy Z opens the last pod. Timmy Prime, gotta four-get-four, gotta do the Duty first. Vigilance! For PRIME(mates)! We figured it out! How to spot the .:S.L.I.D.E.R.S:. Telomeres gotta check on the reg. Look for 'large' changes back and forth and back again! Just like you said!
-
-*Source: https://sites.google.com/view/knottsure/home/pendraggn/teds-lab-on-vespera-523458*

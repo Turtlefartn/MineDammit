@@ -123,5 +123,3 @@ If you mean save/export this ChatGPT conversation, you have a few options:
 3. Save just this conversation: you can also use your browser's Print → Save as PDF.
 
 If by "export" you mean preserve this exact conversation so you can bring it into another AI/session and continue the thought experiment, I can also turn the conversation into a clean standalone transcript or context document for you.
-
-*Source: https://sites.google.com/view/knottsure/home/chose-wisely/questions-for-al*

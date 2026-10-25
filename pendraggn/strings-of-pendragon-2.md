@@ -319,5 +319,3 @@ Journy though underground maze used by Timmy to single out each member of the te
 *Trapped underground after an e-dog triggered a booby trap 🪤, lost two dogs and one handler. I told the Sarge HALF, not to let two escape.... The others died for nothing. Now we have to navigate a maze designed by a higher intelligence to prove we're worthy of entrance without sacrifice. We're making camp and sending out recon teams to search the tunnels, too clean to be natural. Every tunnel has a pile of rocks; whenever there's a junction, sectioned off by 'a perfectly clean floor, not a spec of dust, even walking through it with muddy boots leaves no mark'.
 
 .*==*==*.
-
-*Source: https://sites.google.com/view/knottsure/home/pendraggn/strings-of-pendragon_1*

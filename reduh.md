@@ -17,5 +17,3 @@ Pharaohs rule A CLONE world? Waynes?
 USA 'Disappears' after the Cold War? Space Nazi's
 
 ---
-
-*Source: https://sites.google.com/view/knottsure/home/reduh*
